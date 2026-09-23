@@ -1,1 +1,0 @@
-# akulmambetov.github.io
